@@ -1,9 +1,6 @@
 Hey there!👋
-
 We can congratulate you on reaching the final step of this task!🎉
-
 The file you've found here has to be used in solving the next one... 🔜
-
 And specially for those, who have solved the first task, we've created the super secret channel🤫
 
 ------------------- https://t.me/joinchat/AAAAAFPvkOa36hTgNLRm8g ------------------------
